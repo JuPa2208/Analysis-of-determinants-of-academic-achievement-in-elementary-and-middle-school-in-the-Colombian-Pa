@@ -1,0 +1,2 @@
+# Analysis-of-determinants-of-academic-achievement-in-elementary-and-middle-school-in-the-Colombian-Pa
+Here you will find the poster "Analysis of the determinants of academic achievement in primary and secondary school in the Colombian Pacific: a study of gaps with a gender and ethnic approach" by the authors Wendy Sanchez and Juan Pablo Villarraga, from Universidad Sergio Arboleda, Bogotá D.C. (2022).
